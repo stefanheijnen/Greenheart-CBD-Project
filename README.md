@@ -1,1 +1,1 @@
-# Greenheart-CBD---CBD-Project
+# Greenheart-CBD-Project
